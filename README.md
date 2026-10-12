@@ -1,7 +1,4 @@
-# audiotoolkit-legal
 # **Audio Toolkit Privacy Policy**
-
-# **Privacy Policy**
 
 **Last Updated: November 28, 2026**
 
