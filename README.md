@@ -1,6 +1,6 @@
 # **Audio Toolkit Privacy Policy**
 
-**Last Updated: November 28, 2026**
+**Last Updated: October 28, 2026**
 
 ### **1. Information We Collect**
 
