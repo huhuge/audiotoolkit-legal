@@ -3,7 +3,7 @@
 
 # **Privacy Policy**
 
-**Last Updated: November 28, 202****6**
+**Last Updated: November 28, 2026**
 
 ### **1. Information We Collect**
 
